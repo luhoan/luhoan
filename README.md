@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science, Artificial Intelligence, Machine Learning, Mathematics, Engineering
 - 🌱 I’m currently learning HTML, CSS, Python, Java
 - 💞️ I’m looking to collaborate on ANYTHING
-- 📫 How to reach me @thanluanhoang@gmail.com
+- 📫 How to reach me: @thanluanhoang@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: HS JR ('26)
 
