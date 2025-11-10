@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ANYTHING
 - 📫 How to reach me: @thanluanhoang@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: HS JR ('26)
+- ⚡ Fun fact: HS SR ('26)
 
 <!---
 luhoan/luhoan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
